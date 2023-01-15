@@ -1,3 +1,3 @@
 second program
 
-lets go not bad idea
+lets go not bad idea. kaka chapa
